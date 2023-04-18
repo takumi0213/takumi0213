@@ -1,5 +1,4 @@
 ### Link
-[Twitter](https://twitter.com/takumi02135)
 
 Discord takumi0213#0213
 
