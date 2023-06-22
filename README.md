@@ -1,4 +1,4 @@
-Team Sina Menber(System Administrator,etc...)
+Team Sina Menber(Sub Owner,System Administrator,etc...)
 
 Discord takumi0213#0213
 
